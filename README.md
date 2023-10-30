@@ -1,7 +1,6 @@
 # TEAM-MEMBER-02
 
 Assignment links
-
 BLOG LINK:
 https://novamerchs.blogspot.com/2023/10/elevate-your-style-with-nova.html
 
